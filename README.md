@@ -1,3 +1,5 @@
+![giphy](https://github.com/user-attachments/assets/12b81e8f-dbb5-4c9c-a68c-08d412d22e87)
+
 # 💫 About Me:
 I fork codes<br>i hate coding but i do it anyways bc im cool<br>idk what i'm doing<br>i study MBBS
 
